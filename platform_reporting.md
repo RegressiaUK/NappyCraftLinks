@@ -27,6 +27,12 @@ the purpose for comfort, inclusion, and gentle healing through play.
  There is alot more, try using medical or trustable websites don't trust ANY website linked to ABDL or adult content as they try include Age Regression as part of there
  community so people accept them more this is NOT Age Regression.
 
+<br>
+
+### Used in therapy group in the UK
+ - Creative Minds [Wayback](https://web.archive.org/web/20240520124752/https://www.southwestyorkshire.nhs.uk/creative-minds-projects/breaking-the-cycle-through-creative-therapy/) this was a old service offered by the NHS that offered Age Regression, inner child therapy and many more things to help people with domestic abuse that they suffered or witnessed
+
+<br>
 
 ### What if the people are regresssion without knowing?
 Here are some signs of this none of these sites are perfect but it could be time to try get them to see a therapies at regressing without 
@@ -37,6 +43,8 @@ control is no longer balanced and this kind of regression most likely wont happe
 
 VeryWellHealth is in both list above because it is very clinical but says it very trueful, is regression is happening involuntary it could be signs of something deeper in an adult
 and if you voluntary do it two much and you have other mental health problems but it "works" you could be hiding a deeper problem as well this is like anything is the world.
+
+<br>
 
 ### Why is Age Regression called the same thing for the Thereapy and the disorder ?
 Well Age Regression isn't a disorder it a sign of something else wrong when it's talked about the involuntary our minds are crazy places, if someone you know and love
