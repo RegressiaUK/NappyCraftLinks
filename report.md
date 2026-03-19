@@ -19,8 +19,9 @@ might of not considered that.
  - Wording or saying within the mod might have dual meaning.
  - Other gerneral issuses we might be able to work with the communit with
 
-NappyCraft is here to support disabled and people that have dealt with trauam in there childhood, Age Regression is a safe space for anyone is important, we als you 
-NOT to request support that is related to ABDL or there community our mod as a hard enough time as it is been accepted, the ABDL community as a hole is not supported
-by the mod or the mod team. We do not stop anyone from using our work but we do not condon the ABDL community in anyway.
+NappyCraft is here to support disabled and people that have dealt with trauam in there childhood, Age Regression is a safe space for anyone is important, we ask you 
+NOT to request support that is related to ABDL/Paraphilic infantilism or there community as our mod as a hard enough time as it is been accepted, the ABDL/Paraphilic infantilism 
+community as a hole is not supported
+by the mod or the mod team. We do not stop anyone from using our work but we do not condon the ABDL/Paraphilic infantilism community in anyway.
 
-So please respect that his mod is for Age Regression, it lets Children/Teens/Adults, all regressin or be accepted as disabled in Minecraft in a safe way.
+So please respect that is mod is for Age Regression, it lets Children/Teens/Adults, all regressin or be accepted as disabled in Minecraft in a safe way.
