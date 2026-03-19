@@ -14,7 +14,8 @@
 <br>
 
 ### Reports and Bugs
-Whant to report something, a bug or other problem, even a item or function that can be confused as something else, then please read [this](https://github.com/RegressiaUK/NappyCraftLinks/blob/main/report.md) and maybe report a issuse.
+Want to report something, a bug or other problem, even a item or function that can be confused as something else then please read the link below
+ - Reporting a issue - [Read Me](https://github.com/RegressiaUK/NappyCraftLinks/blob/main/report.md)
 
 
 ### Before you report to the host/platform!
