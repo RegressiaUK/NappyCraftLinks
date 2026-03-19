@@ -32,6 +32,8 @@ the purpose for comfort, inclusion, and gentle healing through play.
 ### Used in therapy group in the UK
  - Creative Minds [Wayback](https://web.archive.org/web/20240520124752/https://www.southwestyorkshire.nhs.uk/creative-minds-projects/breaking-the-cycle-through-creative-therapy/) this was a old service offered by the NHS that offered Age Regression, inner child therapy and many more things to help people with domestic abuse that they suffered or witnessed
 
+The NHS over the years keep changing the terms it uses for Age Regression and the Therepies it's under we will update with more UK based resources in the future, but the US based ones say almost the same things as the UK based ones, I am a UK based person and CBT and other things like this when I was younger we talked about voluntary age regression, in the UK Age Regression is apart of a larger therapy subject and isn't stand along course.
+
 <br>
 
 ### What if the people are regresssion without knowing?
