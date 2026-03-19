@@ -1,6 +1,6 @@
 ![Welcome to the In-Game Online Wiki](https://github.com/RegressiaUK/NappyCraftLinks/blob/main/resources/logonc.png?raw=true)
 
-### NappyCraft Links & [Report](https://github.com/TheShadowModsUK/NappyCraftLinks/blob/main/report.md)
+### [Reporting](https://github.com/TheShadowModsUK/NappyCraftLinks/blob/main/report.md) issues with NappyCraft
 Welcome to our official report page, on Githun of this project you will see [Issues](https://github.com/RegressiaUK/NappyCraftLinks/issues)
 that is where you go to report things like Bugs, problems with the mod that you feel could do with a change like a Item of the mod 
 might seem like it's one thing when it's another so you might have a idea or just have your view how the items looks and we 
