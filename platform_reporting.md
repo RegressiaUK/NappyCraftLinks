@@ -23,6 +23,7 @@ the purpose for comfort, inclusion, and gentle healing through play.
  - Better Helps view on Age Regression [Here](https://www.betterhelp.com/advice/therapy/regression-therapy-what-is-it-and-can-it-help-you)
  - WebMD view on Age Regression [Here](https://www.webmd.com/mental-health/what-is-age-regression-therapy)
  - verywellhealth view on Age Regression [Here](https://www.verywellhealth.com/age-repression-therapy-5212676)
+ - StillMindFlorida view on Age Regression [Here](https://stillmindflorida.com/mental-health/what-is-age-regression)
 
  There is alot more, try using medical or trustable websites don't trust ANY website linked to ABDL or adult content as they try include Age Regression as part of there
  community so people accept them more this is NOT Age Regression.
