@@ -54,6 +54,11 @@ Well Age Regression isn't a disorder it a sign of something else wrong when it's
 is involuntary regressing without pushing them try and understand and get to know where they are been triggere and try get them help but this is out of the scope of Age regression
 as Therapy and our mods. 
 
+
 Age Regression Therapy is very healthy as long as you do it balanced apart of your hole life not the only thing in your life.
 
 So I can't really say why they are known both as the same thing, also doctors have other names for Age Regression, it's the normal term for it but not always the medical term for it.
+
+
+### Note:
+Don't just keep away from personl blogs or adult communites for information on this matter but also keep away from AMAZON as there are loads of books saying about Age Regression but in most cases it's a book created by AI and a ABDL user whom is a Age Play/Paraphilic infantilism and this is not inline with what a Age Regression user is.
