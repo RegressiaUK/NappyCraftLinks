@@ -17,3 +17,27 @@ groups treat these issues as jokes, which makes it harder for real people with m
 
 In our mod, items like protection have practical in-game benefits (for example, slow falling), allowing players to relax and enjoy the experience without worry. That’s 
 the purpose for comfort, inclusion, and gentle healing through play.
+
+
+### Webites covering the matter:
+ - Better Helps view on Age Regression [Here](https://www.betterhelp.com/advice/therapy/regression-therapy-what-is-it-and-can-it-help-you)
+ - WebMD view on Age Regression [Here](https://www.webmd.com/mental-health/what-is-age-regression-therapy)
+
+ There is alot more, try using medical or trustable websites don't trust ANY website linked to ABDL or adult content as they try include Age Regression as part of there
+ community so people accept them more this is NOT Age Regression.
+
+
+### What if the people are regresssion without knowing?
+Here are some signs of this none of these sites are perfect but it could be time to try get them to see a therapies at regressing without 
+control is no longer balanced and this kind of regression most likely wont happen in games it will be a mentel health problem.
+- [MedicalNewsToday](https://www.medicalnewstoday.com/articles/age-regression#age-regression-as-therapy)
+- [sandstonecare](https://www.sandstonecare.com/blog/age-regression/)
+
+### Why is Age Regression called the same thing for the Thereapy and the disorder ?
+Well Age Regression isn't a disorder it a sign of something else wrong when it's talked about the involuntary our minds are crazy places, if someone you know and love
+is involuntary regressing without pushing them try and understand and get to know where they are been triggere and try get them help but this is out of the scope of Age regression
+as Therapy and our mods. 
+
+Age Regression Therapy is very healthy as long as you do it balanced apart of your hole life not the only thing in your life.
+
+So I can't really say why they are known both as the same thing, also doctors have other names for Age Regression, it's the normal term for it but not always the medical term for it.
