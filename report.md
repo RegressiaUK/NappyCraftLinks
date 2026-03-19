@@ -16,7 +16,7 @@ might of not considered that.
 ### Report Mod Issues:
  - A function of the mod can be confused for something else.
  - A Item of the mod can be confused for something else.
- - Working or saying within the mod might have dual meaning.
+ - Wording or saying within the mod might have dual meaning.
  - Other gerneral issuses we might be able to work with the communit with
 
 NappyCraft is here to support disabled and people that have dealt with trauam in there childhood, Age Regression is a safe space for anyone is important, we als you 
