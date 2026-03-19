@@ -1,7 +1,11 @@
 ![Welcome to the In-Game Online Wiki](https://github.com/RegressiaUK/NappyCraftLinks/blob/main/resources/logonc.png?raw=true)
 
-### NappyCraft Links & [Wiki](https://github.com/TheShadowModsUK/NappyCraftLinks/blob/main/wikihome.md)
-This offers a public view of links and our wiki to help you, we moved this away from our website so it was here for everyone, if we also make mistakes users can help push requests to update mistakes.
+### What is NappyCraft 
+📖 **NappyCraft** is a Minecraft mod designed to support inclusive simulation play, comfort mechanics, and self-expression within the game. It introduces features that allow players to simulate the use of nappies/diapers in a way that reflects real-life experiences and supportive environments.
+ - Read More [Here](https://github.com/RegressiaUK/NappyCraftLinks/blob/main/AboutNappyCraft.md)
+
+### How to use?
+ - Coming Soon
 
 
 ### Reports and Bugs
