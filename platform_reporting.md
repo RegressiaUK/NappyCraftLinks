@@ -22,6 +22,7 @@ the purpose for comfort, inclusion, and gentle healing through play.
 ### Webites covering the matter:
  - Better Helps view on Age Regression [Here](https://www.betterhelp.com/advice/therapy/regression-therapy-what-is-it-and-can-it-help-you)
  - WebMD view on Age Regression [Here](https://www.webmd.com/mental-health/what-is-age-regression-therapy)
+ - verywellhealth view on Age Regression [Here](https://www.verywellhealth.com/age-repression-therapy-5212676)
 
  There is alot more, try using medical or trustable websites don't trust ANY website linked to ABDL or adult content as they try include Age Regression as part of there
  community so people accept them more this is NOT Age Regression.
@@ -32,6 +33,10 @@ Here are some signs of this none of these sites are perfect but it could be time
 control is no longer balanced and this kind of regression most likely wont happen in games it will be a mentel health problem.
 - [MedicalNewsToday](https://www.medicalnewstoday.com/articles/age-regression#age-regression-as-therapy)
 - [sandstonecare](https://www.sandstonecare.com/blog/age-regression/)
+- [VeryWellHealth](https://www.verywellhealth.com/age-repression-therapy-5212676)
+
+VeryWellHealth is in both list above because it is very clinical but says it very trueful, is regression is happening involuntary it could be signs of something deeper in an adult
+and if you voluntary do it two much and you have other mental health problems but it "works" you could be hiding a deeper problem as well this is like anything is the world.
 
 ### Why is Age Regression called the same thing for the Thereapy and the disorder ?
 Well Age Regression isn't a disorder it a sign of something else wrong when it's talked about the involuntary our minds are crazy places, if someone you know and love
