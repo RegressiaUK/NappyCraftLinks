@@ -15,3 +15,9 @@
 
 ### Reports and Bugs
 Whant to report something, a bug or other problem, even a item or function that can be confused as something else, then please read [this](https://github.com/RegressiaUK/NappyCraftLinks/blob/main/report.md) and maybe report a issuse.
+
+
+### Before you report to the host/platform!
+Before you take up your pitchfork thinking your protecting people online and so on, I can tell you that your wrong and you should give our statement a read with useful links with creaditable
+links, we don't use wordpress blogs of people no one knows, we used medical sites, some of the sites we use ourself to goven our work.
+ - Please read [this](https://github.com/RegressiaUK/NappyCraftLinks/blob/main/platform_reporting.md)
